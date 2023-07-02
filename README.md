@@ -1,1 +1,1 @@
-i like python and can make nes games
+procrastinate on your projects by working on other projects
